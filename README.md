@@ -1,5 +1,5 @@
 - 👋 Hi, I’m [@zencane](https://github.com/zencane)
-- 🌱 I’m trying to do daily commits for 1 consecutive decade
+- 🌱 Trying out things:)
 - 🔌 Visit [@krithava's](https://github.com/krithava) page 
 
 <!---
